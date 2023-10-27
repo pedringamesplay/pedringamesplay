@@ -1,0 +1,3 @@
+- hi my nome is Pedro vecchio
+- legal e divertido
+- aproveitando a vida sendo servo do meu salvador🙏🏻
